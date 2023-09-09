@@ -11,4 +11,4 @@
 
 📫 Curious to learn more about the adventures of a data-driven scientist? Connect with me on [LinkedIn](https://www.linkedin.com/in/amnahsiddiqa/)
 
-✉️ Email: [amnah.siddiqa@cchmc.org](mailto:amnah.siddiqa@cchmc.org) | [amnahsiddiqa@gmail.com](mailto:amnahsiddiqa@gmail.com)
+✉️ [amnah.siddiqa@cchmc.org](mailto:amnah.siddiqa@cchmc.org) | [amnahsiddiqa@gmail.com](mailto:amnahsiddiqa@gmail.com)
